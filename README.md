@@ -5,4 +5,3 @@ Muhammad Rizky Aulia
 2209106067
 Informatika B 2022
 
-Link Dribble : 
